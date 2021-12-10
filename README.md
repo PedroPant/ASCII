@@ -5,12 +5,12 @@ Pedro Henrique de Oliveira
  
 O que a ASCII significa para você? 
 
-    A ASCII hoje pra mim é uma grande oportunidade de evolução, como pessoa, como profissional, estar participando minimamente de um movimento fez com que eu quisesse ainda mais entrar nesse movimento (Empresa júnior), e ter ainda mais vontade de evoluir como profissional. 
+   A ASCII hoje pra mim é uma grande oportunidade de evolução, como pessoa, como profissional, estar participando minimamente de um movimento fez com que eu quisesse ainda mais entrar nesse movimento (Empresa júnior), e ter ainda mais vontade de evoluir como profissional. 
 
  
 O que está achando de participar do processo trainee? 
 
-    Incrível, acredito que ter participado tenha me feito abrir os outros para onde eu quero seguir, e como posso iniciar esse caminho, gostaria muito de conseguir colocar em pratica tudo que vi. 
+   Incrível, acredito que ter participado tenha me feito abrir os outros para onde eu quero seguir, e como posso iniciar esse caminho, gostaria muito de conseguir colocar em pratica tudo que vi. 
     
 
 Quais os pontos positivos e negativos que conseguiram observar até aqui? 
